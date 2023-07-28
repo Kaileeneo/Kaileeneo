@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kylie.
-- 🌱 I’m currently learning C program 
-- 💞️ I’m just starting out with coding so I don't have any projects yet
+- 🌱 Currently in the first year for Bachelors of Computer Applications
+- 💞️ My 3 big interests are Music, Coffee and Computers
 - 📫 Reach me on insta : @kailee_neo 
 
 <!---
