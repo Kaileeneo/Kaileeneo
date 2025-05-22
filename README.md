@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kylie.
-- 🌱 Currently in the first year for Bachelors of Computer Applications
+- 🌱 Currently studying the course of Bachelors of Computer Applications
 - 💞️ My 3 big interests are Music, Coffee and Computers
 - 📫 Reach me on insta : @kailee_neo 
 
