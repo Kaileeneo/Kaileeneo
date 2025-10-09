@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kylie.
+- 👋 Hi, I’m Arwa.
 - 🌱 Currently studying the course of Bachelors of Computer Applications
 - 💞️ My 3 big interests are Music, Coffee and Computers
 - 📫 Reach me on insta : @kailee_neo 
